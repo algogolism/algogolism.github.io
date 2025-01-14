@@ -1,1 +1,0 @@
-# algogolism.github.io
